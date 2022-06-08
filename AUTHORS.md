@@ -1,1 +1,1 @@
-Sebastian Nowak
+Sebastian Nowak Marcin Zieba
